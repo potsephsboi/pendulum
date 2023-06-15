@@ -1,0 +1,1 @@
+Pendulums be oscillating lately
